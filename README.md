@@ -1,1 +1,1 @@
-https://github.com/Itopix47/slozhno-sosredotochitsya-ad
+https://github.com/IvanCot/slozhno-sosredotochitsya-ad
